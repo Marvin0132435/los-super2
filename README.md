@@ -2,5 +2,6 @@
 
 Manuela Tamayo
 Marvin Alvarez
+Karol Sofia Crespo
 SEBASTIAN RAMIREZ VALLEJO
 
